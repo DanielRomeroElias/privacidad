@@ -1,0 +1,2 @@
+# privacidad
+terminos y condiciones
